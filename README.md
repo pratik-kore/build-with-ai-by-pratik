@@ -1,1 +1,0 @@
-# build-with-ai-by-pratik
